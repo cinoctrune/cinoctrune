@@ -5,7 +5,6 @@
 wait… i deadass don’t remember my old acc
 ---
 ʜᴇʏʏ ɢʜᴏsᴛɪɴ ʜᴇʀᴇ 👀 𝘫𝘴 𝘩𝘮𝘶 𝘪𝘯 𝘸𝘩𝘪𝘴𝘱𝘦𝘳 💭 
----
 
 ## 🎧 **My Spotify Track**
 
