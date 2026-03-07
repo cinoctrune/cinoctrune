@@ -18,7 +18,19 @@
 
 *https://mooncheescake.straw.page*
 
-# --- ★ ---
+
+
+<p align="center"><b>BYI</b></p>
+
+<p align="center">
+feel free to boop me or hmu in whispers before w2i — i love making friends :>
+<br>
+<br>
+i’m often afk/off-tab and reconnect a lot lol, sorry!
+<br>
+<br>
+note: english isn’t my first language so pls bear with me :')
+</p>
 
 _🎧 **My Spotify Track**_
 
