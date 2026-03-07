@@ -2,6 +2,12 @@
 
 ![gif](https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyeHZzaDhxcTQydDUwbGFlbGZoNjlqbTN5c2RxbGlza3h5eWFocHFmYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/iu7B5XKE6NsE8/giphy.gif)
 
+BYI:
+feel free to boop me or hmu in whispers before w2i — i love making friends :>
+
+i’m often afk/off-tab and reconnect a lot lol, sorry!
+
+note: english isn’t my first language so pls bear with me :')
 
 𝘸𝘢𝘪𝘵... i deadass don't remember ma old acc 
 
