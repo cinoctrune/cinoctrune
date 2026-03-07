@@ -6,20 +6,7 @@
 
 ***
 
- #               BYI:
  
-*feel free to boop me or hmu in whispers before w2i — i love making friends :>*
-
-*i’m often afk/off-tab and reconnect a lot lol, sorry!*
-
-*note:english isn’t my first language so pls bear with me :')*
-
-***
-
-*https://mooncheescake.straw.page*
-
-
-
 <p align="center"><b>BYI</b></p>
 
 <p align="center">
@@ -31,6 +18,8 @@ i’m often afk/off-tab and reconnect a lot lol, sorry!
 <br>
 note: english isn’t my first language so pls bear with me :')
 </p>
+***
+*https://mooncheescake.straw.page*
 
 _🎧 **My Spotify Track**_
 
