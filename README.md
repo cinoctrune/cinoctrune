@@ -21,7 +21,9 @@ note: english isn’t my first language so pls bear with me :')
 
 ***
 
-*https://mooncheescake.straw.page*
+<p align="center">
+☾ <a href="https://mooncheescake.straw.page">visit my strawpage</a> ☽
+</p>
 
 _🎧 **My Spotify Track**_
 
