@@ -1,14 +1,14 @@
 # **»🌙 𝘷𝘪𝘣𝘪𝘯'𝘵𝘩𝘳𝘰𝘶𝘨𝘩 𝘵𝘩𝘦 𝘯𝘪𝘨𝘩𝘵«**
 
-# ──────── ⭒ ────────#
+# ──────── ⭒ 
 
 
 ![gif](https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyeHZzaDhxcTQydDUwbGFlbGZoNjlqbTN5c2RxbGlza3h5eWFocHFmYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/iu7B5XKE6NsE8/giphy.gif)
 
 
-# ──────── ⭒ ────────#
+# ──────── ⭒ 
 
- #               *BYI:*
+ #               BYI:
  
 *feel free to boop me or hmu in whispers before w2i — i love making friends :>*
 
@@ -16,7 +16,7 @@
 
 *note:english isn’t my first language so pls bear with me :')*
 
-# ──────── ⭒ ────────#
+# ──────── ⭒ 
 
 
 *https://mooncheescake.straw.page*
