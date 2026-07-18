@@ -19,14 +19,8 @@ i’m often afk/off-tab and reconnect a lot lol, sorry!
  𝙎𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮: 2℅ sometimes. c+h enjoyer might just sit here quietly n convo welcome
  <br>
 <br>
-note: english isn’t my first language so pls bear with me :')
-</p>
 
-***
 
-<p align="center">
-☾ <a href="https://mooncheescake.straw.page">visit my strawpage</a> ☽
-</p>
 
 _🎧 **My Spotify Track**_
 
