@@ -9,16 +9,31 @@
  
 <p align="center"><b>BYI</b></p>
 
+ <p align="center">
+  <b>INFO</b>
+</p>
+
 <p align="center">
-feel free to boop me or hmu in whispers before w2i — i love making friends :>
-<br>
-<br>
-i’m often afk/off-tab and reconnect a lot lol, sorry!
-<br>
-<br>
- 𝙎𝙤𝙘𝙞𝙖𝙡 𝙗𝙖𝙩𝙩𝙚𝙧𝙮: 2℅ sometimes. c+h enjoyer might just sit here quietly n convo welcome
- <br>
-<br>
+18 y/o <br>
+she/her <br>
+w2i pls !! <br>
+mostly afk / offtab <br>
+c+h okay ♡ <br>
+int is always okay :3
+</p>
+
+***
+
+<p align="center">
+  <b>BYF</b>
+</p>
+
+<p align="center">
+i'm kinda awkward at first TT <br>
+replies might be slow, pls don't take it personally <br>
+i might not notice u if i'm offtab <br>
+feel free to boop or whisper me first !!
+</p>
 
 
 
