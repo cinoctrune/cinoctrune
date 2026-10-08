@@ -12,12 +12,14 @@
  
 </p>
 
-$$\color{lightgreen}{\text{18 y/o}}$$
-$$\color{lightgreen}{\text{she/her}}$$
-$$\color{lightgreen}{\text{w2i pls !!}}$$
-$$\color{lightgreen}{\text{mostly afk / offtab}}$$
-$$\color{lightgreen}{\text{c+h}}$$
-$$\color{lightgreen}{\text{int is always okay}}$$
+$$
+\color{#556B2F}{\mathrm{18\ y/o}} \\
+\color{#556B2F}{\mathrm{she/her}} \\
+\color{#8FBC8F}{\mathrm{w2i\ pls\ !!}} \\
+\color{#8FBC8F}{\mathrm{mostly\ afk\ /\ offtab}} \\
+\color{#CD853F}{\mathrm{c+h}} \\
+\color{#CD853F}{\mathrm{int\ is\ always\ okay}}
+$$
 
 
 ***
