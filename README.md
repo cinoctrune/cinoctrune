@@ -6,18 +6,6 @@
 
 ***
 
- 
-</p>
-
-$$
-\color{#556B2F}{\mathrm{18\ y/o}} \\
-\color{#556B2F}{\mathrm{she/her}} \\
-\color{#8FBC8F}{\mathrm{w2i\ pls\ !!}} \\
-\color{#8FBC8F}{\mathrm{mostly\ afk\ /\ offtab}} \\
-\color{#CD853F}{\mathrm{c+h}} \\
-\color{#CD853F}{\mathrm{int\ is\ always\ okay}}
-$$
-
 
 ***
 
