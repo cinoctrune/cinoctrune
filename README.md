@@ -7,9 +7,6 @@
 ***
 
  
-<p align="center"><b>BYI</b></p>
-
- 
 </p>
 
 $$
@@ -25,7 +22,7 @@ $$
 ***
 
 <p align="center">
-  <b>BYF</b>
+  \color{#8B4513}{\mathbf{BYF}} \\
 </p>
 
 > [!NOTE]
