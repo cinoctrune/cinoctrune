@@ -28,12 +28,12 @@ int is always okay :3
   <b>BYF</b>
 </p>
 
-<p align="center">
-i'm kinda awkward at first TT <br>
-replies might be slow, pls don't take it personally <br>
-i might not notice u if i'm offtab <br>
-feel free to boop or whisper me first !!
-</p>
+> [!WARNING]
+> I'm kinda awkward at first TT
+> Replies might be slow, pls don't take it personally.
+> I might not notice u if i'm offtab.
+> Feel free to boop or whisper me first !!
+
 
 
 
