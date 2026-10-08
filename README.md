@@ -1,4 +1,4 @@
-no
+
 
 ***
 
@@ -13,14 +13,13 @@ no
   <b>INFO</b>
 </p>
 
-<p align="center">
-18 y/o <br>
-she/her <br>
-w2i pls !! <br>
-mostly afk / offtab <br>
-c+h okay ♡ <br>
-int is always okay :3
-</p>
+$$\color{lightgreen}{\text{18 y/o}}$$
+$$\color{lightgreen}{\text{she/her}}$$
+$$\color{lightgreen}{\text{w2i pls !!}}$$
+$$\color{lightgreen}{\text{mostly afk / offtab}}$$
+$$\color{lightgreen}{\text{c+h}}$$
+$$\color{lightgreen}{\text{int is always okay}}$$
+
 
 ***
 
