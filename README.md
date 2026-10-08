@@ -21,9 +21,18 @@ $$
 
 ***
 
-<p align="center">
-  \color{#8B4513}{\mathbf{BYF}} \\
-</p>
+$$
+\begin{array}{l}
+\color{#8B4513}{\mathbf{BYF}} \\
+\color{#556B2F}{\mathbf{18\ y/o}} \\
+\color{#556B2F}{\mathbf{she/her}} \\
+\color{#8FBC8F}{\mathbf{w2i\ pls\ !!}} \\
+\color{#8FBC8F}{\mathbf{mostly\ afk\ /\ offtab}} \\
+\color{#556B2F}{\mathbf{c+h}} \\
+\color{#556B2F}{\mathbf{int\ is\ always\ okay}}
+\end{array}
+$$
+
 
 > [!NOTE]
 > I'm kinda awkward at first TT
