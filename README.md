@@ -9,8 +9,7 @@
  
 <p align="center"><b>BYI</b></p>
 
- <p align="center">
-  <b>INFO</b>
+ 
 </p>
 
 $$\color{lightgreen}{\text{18 y/o}}$$
