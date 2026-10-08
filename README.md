@@ -1,4 +1,4 @@
-
+no
 
 ***
 
@@ -28,11 +28,12 @@ int is always okay :3
   <b>BYF</b>
 </p>
 
-> [!WARNING]
+> [!NOTE]
 > I'm kinda awkward at first TT
 > Replies might be slow, pls don't take it personally.
 > I might not notice u if i'm offtab.
 > Feel free to boop or whisper me first !!
+
 
 
 
