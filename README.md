@@ -10,7 +10,7 @@
 
 $$
 \begin{array}{l}
-\color{#8B4513}{\mathbf{BYF}} \\
+\color{#8B4513}{\mathbf{BYI}} \\
 \color{#556B2F}{\mathbf{18\ y/o}} \\
 \color{#556B2F}{\mathbf{she/her}} \\
 \color{#8FBC8F}{\mathbf{w2i\ pls\ !!}} \\
