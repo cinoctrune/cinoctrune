@@ -1,4 +1,3 @@
-![Totoro](https://giphy.com)
 
 
 
