@@ -1,4 +1,4 @@
-https://github.com/cinoctrune/cinoctrune/issues/1#issue-5770360735
+
 
 
 ![gif](https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyeHZzaDhxcTQydDUwbGFlbGZoNjlqbTN5c2RxbGlza3h5eWFocHFmYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/iu7B5XKE6NsE8/giphy.gif)
