@@ -7,7 +7,7 @@
 $$
 \begin{array}{l}
 \color{#8B4513}{\mathbf{BYI}} \\
-\color{#556B2F}{\mathbf{17\ y/o}} \\
+\color{#556B2F}{\mathbf{18\ y/o}} \\
 \color{#556B2F}{\mathbf{she/her}} \\
 \color{#8FBC8F}{\mathbf{w2i\ pls\ !!}} \\
 \color{#8FBC8F}{\mathbf{mostly\ afk\ /\ offtab}} \\
@@ -22,7 +22,7 @@ $$
 > Replies might be slow, pls don't take it personally.
 > I might not notice u if i'm offtab.
 > Feel free to boop or whisper me first !!
-> english isn't my first language, i'm sorry!
+> english isn't my first language T—T !
 
 
 
