@@ -22,7 +22,8 @@ $$
 > Replies might be slow, pls don't take it personally.
 > I might not notice u if i'm offtab.
 > Feel free to boop or whisper me first !!
-
+> english isn't my first language, i'm sorry!
+feel free to say hi, let's be friends ୨ৎ
 
 
 
