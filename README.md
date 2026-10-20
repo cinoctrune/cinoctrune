@@ -23,8 +23,7 @@ I'm an introvert, so I might be a little quiet at first ♡
 > I might not notice u if i'm offtab.
 Feel free to boop or whisper me first ౨ৎ
 I'm open to conversations anytime, so don't be shy to interact !!
-> u can also sit with me if u want ♡
-english isn't my first language T—T but i'll try my best!
+> u can also sit with me if u want 
 
 
 ![gif](https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyZ3RydDJmbzRxdGFtN29lajM0bmd6c3BiMGNpcG1ha3ZsbHh4a2ltdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/mxCAknIv6WLquN2n1I/giphy.gif)
